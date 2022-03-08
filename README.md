@@ -3,7 +3,7 @@
 ![](https://user-images.githubusercontent.com/11721593/151629651-bf195a25-95de-4590-a7e5-7835cec1810c.gif)
 ![](https://user-images.githubusercontent.com/11721593/153719850-8dd477a5-876e-4751-8fb7-2836a8137720.gif)
 
-### Pronouns are **they/them**
+### Pronouns: **she/they**
 
 ![](https://user-images.githubusercontent.com/11721593/151630239-9dfa5a86-e383-4cff-a9cf-9f05c5a7f15b.gif)
 ![](https://user-images.githubusercontent.com/11721593/151630385-959b4265-ff00-4ddf-8e5b-0199f01469f3.gif)
